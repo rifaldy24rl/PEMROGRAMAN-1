@@ -1,2 +1,2 @@
 # PEMROGRAMAN-1
-disni ada beberapa pertemuan yang ga ada latihannya pak
+disni ada beberapa pertemuan yang tidak ada latihannya pak
